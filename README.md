@@ -1,4 +1,4 @@
-# Explorer - Intensivão (Stage 01 - 04) 🚀
+# Explorer - (Stage 01 - 04) 🚀
 
 > Explore sem Limites 👩🏻‍🚀⭐
 
